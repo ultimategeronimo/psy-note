@@ -1,0 +1,1 @@
+Tính quy chuẩn của quy trình nghiên cứu

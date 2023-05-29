@@ -1,0 +1,1 @@
+Kết quả nghiên cứu chỉ có hiệu lực ở một vài nhóm dân số

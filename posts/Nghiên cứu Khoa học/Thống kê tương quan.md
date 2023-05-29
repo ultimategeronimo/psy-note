@@ -1,0 +1,1 @@
+Mở rộng [[Bicorrelational matrix]]

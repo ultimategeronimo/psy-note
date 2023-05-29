@@ -1,0 +1,1 @@
++ Ngắn gọn nhưng đầy đủ thông tin

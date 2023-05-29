@@ -1,0 +1,1 @@
+Chỉ số trung bình của tạp chí dùng trích dẫn trong thời gian 2 năm sau khi công bố để tính IF 

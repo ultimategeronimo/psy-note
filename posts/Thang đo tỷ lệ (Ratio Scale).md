@@ -1,0 +1,1 @@
++ Giống [[Thang đo khoảng cách (Interval Scale)]] nhưng số 0 có thực 

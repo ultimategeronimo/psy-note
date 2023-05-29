@@ -1,0 +1,1 @@
+Dựa trên [[Cấu trúc của thái độ]] với trải nghiệm tương đương nhau

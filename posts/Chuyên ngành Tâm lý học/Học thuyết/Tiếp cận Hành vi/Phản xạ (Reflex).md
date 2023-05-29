@@ -1,0 +1,1 @@
++ Phản xạ không có điều kiện (Unconditioned Reflex): Là phản xạ tự nhiên không được kích hoạt thông qua học tập và dựa vào [[Chuyên ngành Tâm lý học/Học thuyết/Tiếp cận Tâm Sinh lý/Hệ thần kinh tự động (Autonimic Nervous System)|Hệ thần kinh tự động]]
